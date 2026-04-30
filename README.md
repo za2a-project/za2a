@@ -179,4 +179,4 @@ Za2a bridges the gap between talent and income.
 4. **Results-Driven** – Every action is designed to deliver measurable results.  
 5. **Inclusivity** – Serving talents of all backgrounds and experience levels.
 6. 
-   اي تحديث او ملفات بخصوص ال project za2a هيتم تحميلها علي google drive الخاص بالمشروع علي ال mail :  za2adigitalagency@gmail.com
+   اي تحديث او ملفات بخصوص ال project za2a هيتم تحميلها علي google drive الخاص بالمشروع علي ال mail :  https://drive.google.com/drive/folders/1539AnzeG0bez3D1OOkZ5VIwHsHDQUHI-?usp=sharing
